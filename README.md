@@ -1,2 +1,1 @@
-
-![desktop-preview](https://github.com/Hna456/clipboard-page/assets/128493987/20193d20-53fa-4240-8d9e-a4b2b020e1d4)
+![desktop-design](https://github.com/Hna456/clipboard-page/assets/128493987/4c7a02d2-0192-41bf-9d2b-bf1fb374b2aa)
